@@ -11,4 +11,3 @@
 
 오늘도 좋은 하루 되세요~
 
-![이미지](https://t1.daumcdn.net/cafeattach/1PRZj/4d74e2886d7100094cfbb16e72e97163f65e0aed)
